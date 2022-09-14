@@ -1,4 +1,4 @@
 ### Hi there 👋
-### I'm 17 years old and I am currently studying in high school 👨‍🎓
+### I'm 18 years old and I study law at tobb university. 
 
 
